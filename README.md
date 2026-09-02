@@ -1,0 +1,2 @@
+# mikrodalgada-yemegin-ortasinin-donuk-kalmasi-tarim-ve-orman-bakanligi
+Mikrodalgada ısıtılan yemeğin kenarının kaynayıp ortasının buz gibi kalmasını resmi gıda güvenliği krizi, milli ısı dağılımı ihlali ve orman yangını protokolü sayan; tabağı tarla, döner tablayı sulama kanalı, 'bir tur daha çeviririm' cümlesini hasat ertelemesi ilan eden Bakanlık. Gerçekten çalışır. Ortadaki lokmalar artık rezeridir.
